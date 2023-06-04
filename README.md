@@ -1,4 +1,4 @@
-🖐️ Here is my master's thesis (2023) 
+🖐️ Here is my master's dissertation (2023) 
 
 📝 曹斌(Bin CAO) major in Mechanics 
 
